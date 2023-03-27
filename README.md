@@ -12,3 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about nothing
 - 📫 How to reach me: nunya buisness
 - ⚡ Fun fact: I haven't played a metal gea rgame
+- 🏹 I am currently fighting against nothing lol this is a lie.
